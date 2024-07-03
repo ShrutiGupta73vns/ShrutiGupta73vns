@@ -8,7 +8,7 @@
 
 - 📫 How to reach me **shrurose73@gmail.com**
 
-- 📄 Know about my experiences [https://bit.ly/shruti-dev](https://bit.ly/shruti-dev7)
+- 📄 Know about my experiences [https://bit.ly/shruti-dev7](https://bit.ly/shruti-dev7)
 
 - ⚡ Fun fact **I think I am funny**
 
